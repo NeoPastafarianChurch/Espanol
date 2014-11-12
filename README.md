@@ -4,34 +4,31 @@ La iglesia NeoPastafaria es una iglesia computacional 100% compatible con la Igl
 del Monstruo de Espagueti Volador como fue revelada a nosotros por el profeta
 Bobby Henderson
 
-Como iglesia exaltamos las cualidades positivas de una congregación, 
-As a church we openly cherish the good qualities of having a congregation, to pursue
-as a group a better quality of life and to participate in helping the community. Although
-we are not necesarilly atheists (many of us are), we recommend the book: Religion for 
-Atheists, a non believers guide to the uses of religion, by Alain De Bottom, 
-to get more information on this stance. These ideas have been implemented
-in various contexts, most notably the sunday assembly, for our tastes 
-though, these are very serious folks.
+Como iglesia exaltamos las cualidades positivas de una congregación, buscar como grupo
+una mejor calidad de vida y contribuir positivamente en ayuda a la comunidad. Aunque no
+somos ateos (algunos de nuestros miembros lo son) recomendamos el libro: Religion for Atheists
+de Alain De Botton, para entender más profundamente este enfoque. Estas ideas han sido
+implementadas en varios contextos, mas notablemente The Sunday Assembly, los cuales
+para nuestro gusto, son demasiado serios.
 
-One of the core beliefs of a neoPastafarian is that since dogma cannot be proven,
-and dogmas of different sorts are incompatible, then dogma doesn't have a 
-legitimate place in discussion of public policy in an open society, any decision 
-made based on dogma will be an imposition on the minority. An open society has
-the responsibility to make decisions based on an humanistic ethics based on
-scientific fact, an ethics and morals that encompass the religions harbored
-in its society, not the other way round.
+Uno de nuestros valores principales es que como el dogma por definición no puede ser
+probado, y existen muchos dogmas incompatibles, entonces no puede ser usuado como base
+para la discusión y toma de decisiones política en una sociedad abierta pluralista, ya que
+hacerlo necesariamente implica una imposición sobre la minoría. Una sociedad abierta tiene
+la responsabilidad de tomar decisiones basadas en una ética humanista que nos incluya a
+todos.
 
-This is why we strongly believe in the need to separate dogma from fact in all religions
-(religious dogma just wont go away), and the need that all religions openly acknowledge 
-this difference, we therefore stress, by example, the absurdity of dogma. We are all
-free to believe whatever we like, so long as it doesn't affect others, this 
-freedom has to be respected, not the belief though, as NeoPastafarians we
-are the first to accept mockery of our credo, and demand that all religions that
-participate in an open society: Christian, Jusaism, Islam, Buddhist, do so
-as well.
+Por esto creemos fuertemente en la necesidad de separar dogma de los hechos, 
+y la necesidad de que todas las religiones que participan en una sociedad
+abierta reconozcan abiertamente esta diferencia en sus propios credos. Como NeoPastafarios
+subrayamos con el ejemplo el absurdo del dogma. Somos libres para creer lo que queramos,
+siempre y cuando no afecte a terceros, esta libertad debe ser respetada, pero no la creencia en si,
+como NeoPastafarios somos los primeros en permitir burla de nuestro credo, y demandamos que
+todas las religiones que participan en una sociedad abierta: Cristianos, Judios, Musulmanes,
+Budistas, etc, lo hagan también.
 
-We dream of a world in which all religions accept that their dogma is unprovable and
-exclude it from political action, and emphasize their culture and traditions (so long
-as they are humane). In this respect, the NeoPastafarian church is an activist 
-organization.
+Soñamos con un mundo en el que todas las religiones aceptan que sus dogmas no se pueden
+demostrar, y que por lo tanto lo excluyen de su acción política, dedicando al énfasis de
+su cultura y tradiciones (siempre y cuando no sean discrimitarias). En este respeto,
+la iglesia NeoPastafaria es una organización activista.
 
